@@ -1,2 +1,2 @@
-# eakidiraliev.github.io
-This site was created for testing
+Telegram:  t.me/kazakh0499
+Instagram: instagram.com/kidiraliev_0499
